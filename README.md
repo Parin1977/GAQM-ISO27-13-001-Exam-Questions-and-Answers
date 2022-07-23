@@ -1,0 +1,1 @@
+# GAQM-ISO27-13-001-Exam-Questions-and-Answers
